@@ -1,7 +1,7 @@
 
 
 - 🔭Jovem Aprendiz Analista administrativo
-- 📫Contateme- no Email: contato.aliceassis@outlook.com
+- 📫Contate-me no Email: contato.aliceassis@outlook.com
 - 😄 Pronouns:ela/dela
 
  <div>
